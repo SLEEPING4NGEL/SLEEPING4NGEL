@@ -11,4 +11,4 @@ ${\textsf{\color{#5c5c5c} ꣑୧}}$ ⠀ ۠　.　 ⠀⠀Chyreiss ⠀ ⠀　˳　
  ${\textsf{\color{#bcbcbc}⠀ིㅤ⠀ ⠀‿}}$ ⠀ ࿔　 ⠀ ⠀she ⠀ ⠀/ ⠀ ⠀　⑅ ݁　⁰⁰歲𓈒݂݂　𓏴
 </p>
 <p align="center">
-♡⠀  ⠀⠀ᣟ݂.⠀⠀ 　info　︶　 ⠀ ⠀⠀ ࿐ 
+♡⠀  ⠀⠀ᣟ݂.⠀⠀ 　info　︶　 ⠀ ⠀info⠀ ࿐ 
