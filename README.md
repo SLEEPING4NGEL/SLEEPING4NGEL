@@ -3,3 +3,7 @@
   <p align="center">
     <video src="https://github.com/user-attachments/assets/7712db27-55fa-4c88-bbd9-769fc5fe78b5" controls></video>
   </p> 
+
+  <p align="center">
+  wasuuopopppppppppppppp
+  </p>
